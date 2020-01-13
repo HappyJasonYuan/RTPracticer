@@ -1,2 +1,2 @@
 # RTPracticer
-RT Practice
+RT Practice all rights reserved
